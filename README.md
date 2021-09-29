@@ -1,0 +1,1 @@
+This is my personal portfolio in making! I'm going to explore a lot of things and will me making my portfolio super awesome!!
